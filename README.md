@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sujeet(●'◡'●).
+- 🔸 I’m pursuing my graduation🧑‍🎓 from NIT, Surat💫.
+- 🔸 I’m currently learning C++ and Web Development.
+- 🔸 My insta handle @beingMrSeeRT, you can connect with me at their😊.
